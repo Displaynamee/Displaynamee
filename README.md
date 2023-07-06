@@ -14,6 +14,7 @@ ill still list em a bit-
 
 ✅INT- same fandoms //patreon// if you arent in my dni blah blah 
 
+if i have C+H in my name then please int if u want (dont be scared LMAO) although i dont know why youd be .?
                 
 
   🌟status meanings🌟
@@ -27,6 +28,8 @@ ill still list em a bit-
   💬looking for a chat- i definantly want to chat with someone ..thats basically it PLEASE DONT BE AFRIAD OF ME I WONT BITE ?
 
   🎭looking for a roleplay- uh.. i never have this on my status .. but it means exactly what it says
+
+
 
   
 
